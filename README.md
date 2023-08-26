@@ -1,0 +1,1 @@
+# Shinier-Enchantments-Resource-Pack-for-Minecraft-Bedrock
